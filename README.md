@@ -46,7 +46,13 @@ Top 10 profitable & loss-making products
 <img width="1152" height="733" alt="Screenshot 2025-08-06 115450" src="https://github.com/user-attachments/assets/243d83fe-32f6-4857-87ab-b4a759ab9b30" />
 
 
+
 <img width="1144" height="668" alt="Screenshot 2025-08-06 115519" src="https://github.com/user-attachments/assets/2e446853-25ed-4cf2-a6a2-43685aeee4ea" />
+
+
+
+
+
 
 
 
